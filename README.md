@@ -1,5 +1,4 @@
-﻿# Israel-Sejas-Training-Specialist-Senior-Instructional-Designer
-# 💫 About Me:
+﻿# 💫 About Me:
 👋 Hi, I'm Israel  
 💻 Training Specialist → Instructional Designer  
 
